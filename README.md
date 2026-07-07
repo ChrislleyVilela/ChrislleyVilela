@@ -1,4 +1,4 @@
-## Olá! Eu sou a Chrislley Emylly 🖐️
+## Olá! Eu sou Chrislley Emylly 🖐️
 
 ## Tecnologias que eu uso no meu dia
 
